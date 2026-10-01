@@ -4,7 +4,7 @@
 
 ### Senior Backend Engineer
 
-[Email](mailto:dobrynin.ph@gmail.com) · [LinkedIn](https://www.linkedin.com/in/filippdobrynin) · [Phone](tel:+393447026032)
+[Email](mailto:dobrynin.ph@gmail.com) · [LinkedIn](https://www.linkedin.com/in/filippdobrynin) · [Phone: +39 344 702 6032](tel:+393447026032)
 
 </div>
 
